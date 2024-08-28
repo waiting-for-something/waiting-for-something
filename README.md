@@ -1,2 +1,2 @@
-![By Touchme_midas on Twitter](https://github.com/user-attachments/assets/75937fdb-2d23-4fc1-9da4-1fe75462b80e)
+![Без названия (5)](https://github.com/user-attachments/assets/960695f5-5dd9-4467-a61a-1f702cc21369)
 ☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★
