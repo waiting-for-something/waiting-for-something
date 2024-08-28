@@ -1,1 +1,1 @@
-![Omori Widget‼️ (7_8)](https://github.com/user-attachments/assets/e9d14fa6-d18a-4195-9f78-76501cb8e76c)
+![By Touchme_midas on Twitter](https://github.com/user-attachments/assets/75937fdb-2d23-4fc1-9da4-1fe75462b80e)
