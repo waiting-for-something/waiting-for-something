@@ -1,2 +1,1 @@
-![Без названия (13)](https://github.com/user-attachments/assets/68b1efce-ea6e-47bf-9340-ec82661cad9e)
-★・。。・゜゜・。。・゜★★゜・。。・゜゜・。。・゜★
+![_3](https://github.com/user-attachments/assets/bc4b9055-5869-481e-a9f1-98e389d76879)
