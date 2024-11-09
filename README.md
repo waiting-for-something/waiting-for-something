@@ -1,1 +1,1 @@
-![colette](https://github.com/user-attachments/assets/cea7e189-148e-473d-a98e-bc798a2043e0)
+![teri🏏 on Twitter](https://github.com/user-attachments/assets/ffc3cfc3-91d3-4e40-bb25-d3e0464ea04f)
