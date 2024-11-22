@@ -1,1 +1,1 @@
-![Без названия (34)](https://github.com/user-attachments/assets/def59839-c40d-4822-85e3-73a25800e85b)
+![Без названия (34)](https://github.com/user-attachments/assets/8a3c2904-8de6-436b-9a81-ae5c91df046e)
