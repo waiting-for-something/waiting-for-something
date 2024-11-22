@@ -1,1 +1,2 @@
-![C_@marblepun on X](https://github.com/user-attachments/assets/c7224a23-474b-4e03-9bfa-b2b221f11fc4)
+![Без названия (33)](https://github.com/user-attachments/assets/96d64d3e-92e3-46e0-8f86-e3fbe0fac3db)
+
