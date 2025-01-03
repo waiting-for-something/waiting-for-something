@@ -7,6 +7,6 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=waiting-for-something&color=redyellow)
+![](https://komarev.com/ghpvc/?username=waiting-for-something&color=lightgrey)
 
 ⚠︎ before you interact with me, know that I can be slow in responding, please be patient, thanks.
