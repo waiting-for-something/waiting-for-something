@@ -1,4 +1,4 @@
- ⸝⸝ I don't mind c+h even if we don't know each other. ![image](https://github.com/user-attachments/assets/ab8754fd-1d06-4550-8700-b01ef3a8c03d)
+ ⸝⸝ I don't mind c+h even if we don't know each other. 
 
                 
 
