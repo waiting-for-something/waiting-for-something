@@ -12,4 +12,4 @@
 
 
 
-⚠︎ b4 you interact with me know that i can be slow in responding, please be patient, thanks.
+⚠︎ b4 you interact w me know that i can be slow in responding, please be patient, thanks.
