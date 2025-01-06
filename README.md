@@ -4,7 +4,7 @@
 
 
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=waiting-for-something&color=lightgrey)                                   
+!(https://komarev.com/ghpvc/?username=waiting-for-something&color=lightgrey)                                   
  
 
 
