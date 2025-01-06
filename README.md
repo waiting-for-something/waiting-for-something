@@ -4,7 +4,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=waiting-for-something&color=dc143c)                                         
+![](https://komarev.com/ghpvc/?username=waiting-for-something)                                        
  
 
 
