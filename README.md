@@ -3,7 +3,7 @@
  ◟ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.
 
 
-𓈒𓏸 ⋆ . ˚｡⋆![](https://komarev.com/ghpvc/?username=waiting-for-something&color=lightgray)⋆｡˚ . ⋆
+⋆ . ˚｡⋆![](https://komarev.com/ghpvc/?username=waiting-for-something&color=lightgray)⋆｡˚ . ⋆
                                
  
 
@@ -15,4 +15,4 @@
 
 ⚠︎ b4 you interact w me know that i can be slow in responding, please be patient, thanks.
 
-𝗱𝗼𝗻'𝘁 𝗰𝗼𝗽𝘆 my skin/take inspo without permission
+𓈒𓏸 𝗱𝗼𝗻'𝘁 𝗰𝗼𝗽𝘆 my skin/take inspo without permission.
