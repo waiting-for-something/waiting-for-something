@@ -3,7 +3,7 @@
  ◟ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.
 
 
-![](https://komarev.com/ghpvc/?username=waiting-for-something&color=lightgray)
+𓆝 𓆟 𓆞 𓆝 𓆟![](https://komarev.com/ghpvc/?username=waiting-for-something&color=lightgray)𓆝 𓆟 𓆞 𓆝 𓆟
                                
  
 
