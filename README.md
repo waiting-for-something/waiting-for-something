@@ -14,5 +14,3 @@
 
 
 ⚠︎ b4 you interact w me know that i can be slow in responding, please be patient, thanks.
-
-𓈒𓏸 𝗱𝗼𝗻'𝘁 𝗰𝗼𝗽𝘆 my skin/take inspo without permission.
