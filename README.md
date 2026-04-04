@@ -1,5 +1,3 @@
-<img width="99" height="56" alt="tumblr-oyxkg6RZLD1wh1zwpo1-100" src="https://github.com/user-attachments/assets/1df1d3ec-64c0-41b8-8541-d9ee540e2948" />
-
 𓂃 i don't mind c+h even if we don't know each other. 
 
  ◟ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.
