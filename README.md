@@ -2,7 +2,7 @@
 <div align="center">
 
 
-
+<img width="24%" src="https://i.pinimg.com/1200x/49/53/db/4953dbb2e6331e369feab313999314f4.jpg">
 
  𓂃 i don't mind c+h even if we don't know each other. 
 
