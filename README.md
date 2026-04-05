@@ -1,7 +1,7 @@
  </div>
 <div align="center">
 
-![Uploading Без названия (15).png…]()
+
 
 
  𓂃 i don't mind c+h even if we don't know each other. 
