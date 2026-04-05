@@ -1,6 +1,10 @@
  </div>
 <div align="center">
-𓂃 i don't mind c+h even if we don't know each other. 
+
+![Uploading Без названия (15).png…]()
+
+
+ 𓂃 i don't mind c+h even if we don't know each other. 
 
  ◟ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.
 
