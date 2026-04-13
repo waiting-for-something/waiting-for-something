@@ -21,4 +21,4 @@
 ⚠︎ b4 you interact w me know that i can be slow in responding please be patient, thanks.
 
 
-[新book](https://vera-is-not-a-loser.atabook.org/)⠀⠀[pronouns](https://pronouns.cc/@waiting-for-something)⠀⠀[strawpage](https://waiting-for-smth.straw.page/)
+[ata](https://vera-is-not-a-loser.atabook.org/)⠀⠀[pronouns](https://pronouns.cc/@waiting-for-something)⠀⠀[strawpage](https://waiting-for-smth.straw.page/)
