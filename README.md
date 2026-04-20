@@ -13,7 +13,7 @@
 
  ◟ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.
  
- ⚠︎ b4 you interact w me know that i can be slow in responding please be patient, thanks.
+  ⚠︎ before you interact w me know that i can be slow in responding please be patient, thanks.
 
 
 
