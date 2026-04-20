@@ -1,5 +1,7 @@
  </div>
 <div align="center">
+[atabook](https://vera-is-not-a-loser.atabook.org/)⠀・⠀[pronouns](https://pronouns.cc/@waiting-for-something)⠀・⠀[strawpage](https://waiting-for-smth.straw.page/)
+
 
 
 <img width="24%" src="https://i.pinimg.com/1200x/49/53/db/4953dbb2e6331e369feab313999314f4.jpg">
@@ -12,13 +14,7 @@
  ⋆ . ˚｡⋆![](https://komarev.com/ghpvc/?username=waiting-for-something&color=lightgray&style=plastic&label=*^____^*)⋆｡˚ . ⋆
                                
  
-
-
-
-
-
-
 ⚠︎ b4 you interact w me know that i can be slow in responding please be patient, thanks.
 
 
-[atabook](https://vera-is-not-a-loser.atabook.org/)⠀・⠀[pronouns](https://pronouns.cc/@waiting-for-something)⠀・⠀[strawpage](https://waiting-for-smth.straw.page/)
+
