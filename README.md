@@ -1,10 +1,10 @@
  </div>
 <div align="center">
 
+[atabook](https://vera-is-not-a-loser.atabook.org/) ᐟ [pronouns](https://pronouns.cc/@waiting-for-something) ᐟ [strawpage](https://waiting-for-smth.straw.page/) 
 
 
-
-<img width="24%" src="https://i.pinimg.com/1200x/49/53/db/4953dbb2e6331e369feab313999314f4.jpg">
+<img width="24%" src="https://i.pinimg.com/1200x/a7/23/10/a723106db0b46bac950e3e4ba181c76b.jpg">
 
  𓂃 i don't mind c+h even if we don't know each other. 
 
