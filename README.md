@@ -4,7 +4,9 @@
 
  ![](https://komarev.com/ghpvc/?username=waiting-for-something&color=grey&style=flat&label=wolves)
 
+
 [atabook](https://vera-is-not-a-loser.atabook.org/) ᐟ [pronouns](https://pronouns.cc/@waiting-for-something) ᐟ [strawpage](https://waiting-for-smth.straw.page/) 
+
 
 <img width="78%" src="https://i.pinimg.com/1200x/a7/23/10/a723106db0b46bac950e3e4ba181c76b.jpg">
  
