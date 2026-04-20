@@ -5,7 +5,7 @@
 
 <img width="75%" src="https://i.pinimg.com/1200x/a7/23/10/a723106db0b46bac950e3e4ba181c76b.jpg">
 
-![Visitors](https://laobi.icu)
+![](https://komarev.com/ghpvc/?username=waiting-for-something&color=grey&style=flat&label=wolves)
  
  
  𓂃 i don't mind c+h even if we don't know each other. 
