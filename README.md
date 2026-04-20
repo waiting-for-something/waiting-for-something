@@ -3,7 +3,7 @@
 
 [atabook](https://vera-is-not-a-loser.atabook.org/) ᐟ [pronouns](https://pronouns.cc/@waiting-for-something) ᐟ [strawpage](https://waiting-for-smth.straw.page/) 
 
-<img width="80%" src="https://i.pinimg.com/1200x/a7/23/10/a723106db0b46bac950e3e4ba181c76b.jpg">
+<img width="75%" src="https://i.pinimg.com/1200x/a7/23/10/a723106db0b46bac950e3e4ba181c76b.jpg">
 
  𓂃 i don't mind c+h even if we don't know each other. 
 
