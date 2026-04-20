@@ -1,6 +1,6 @@
  </div>
 <div align="center">
-[atabook](https://vera-is-not-a-loser.atabook.org/)⠀・⠀[pronouns](https://pronouns.cc/@waiting-for-something)⠀・⠀[strawpage](https://waiting-for-smth.straw.page/)
+
 
 
 
