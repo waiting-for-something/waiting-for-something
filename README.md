@@ -2,7 +2,7 @@
 <div align="center">
 
 
- ![](https://komarev.com/ghpvc/?username=waiting-for-something&color=grey&style=flat&label=wolves)
+ ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=grey&style=flat&label=wolves)
 
 
 [atabook](https://vera-is-not-a-loser.atabook.org/)⠀ᐟ⠀[pronouns](https://pronouns.cc/@waiting-for-something)⠀ᐟ⠀[strawpage](https://waiting-for-smth.straw.page/)
