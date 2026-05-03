@@ -6,6 +6,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Amiri&weight=500&size=25&pause=900&color=1D1514&width=525&height=60&lines=thanks+for+taking+me+down+here%2C+Sean.)](https://git.io/typing-svg)
 <img width="97%" src="https://static.wikia.nocookie.net/life-is-strange/images/9/9e/LiS2-E5-Wolves_Keyart.png.jpg/revision/latest/scale-to-width-down/1000?cb=20191126164543">
+
 [atabook](https://vera-is-not-a-loser.atabook.org/)⠀ᐟ⠀[pronouns](https://pronouns.cc/@better-to-sleep)⠀ᐟ⠀[strawpage](https://better-to-sleep.straw.page/)
 
   <p align="center"> <sup>𓂃 i don't mind c+h even if we don't know each other. 
