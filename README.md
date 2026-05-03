@@ -7,7 +7,7 @@
 
 [atabook](https://vera-is-not-a-loser.atabook.org/)⠀ᐟ⠀[pronouns](https://pronouns.cc/@better-to-sleep)⠀ᐟ⠀[strawpage](https://better-to-sleep.straw.page/)
  
- <img width="100%" src="https://static.wikia.nocookie.net/life-is-strange/images/9/9e/LiS2-E5-Wolves_Keyart.png.jpg/revision/latest/scale-to-width-down/1000?cb=20191126164543">
+ <img width="100%" src="https://i.pinimg.com/736x/05/e1/35/05e1352e2f8a08824d36fa591fced4de.jpg">
 
   <p align="center"> <sup>𓂃 i don't mind c+h even if we don't know each other. 
   
