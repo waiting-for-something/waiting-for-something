@@ -10,7 +10,7 @@
 
   <p align="center"> <sup>𓂃 i don't mind c+h even if we don't know each other. 
   
- <sup>◟ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.
+   <sup>◟ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.
  
  <sup>⚠︎ before you interact w me know that i can be slow in responding please be patient, thanks.
 
