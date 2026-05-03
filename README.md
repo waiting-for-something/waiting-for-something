@@ -6,7 +6,7 @@
 
  
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&pause=1000&color=1D1514&width=435&lines=thanks+for+taking+me+down+here%2C+Sean.)](https://git.io/typing-svg)
-<img width="92%" src="https://static.wikia.nocookie.net/life-is-strange/images/9/9e/LiS2-E5-Wolves_Keyart.png.jpg/revision/latest/scale-to-width-down/1000?cb=20191126164543">
+<img width="94%" src="https://static.wikia.nocookie.net/life-is-strange/images/9/9e/LiS2-E5-Wolves_Keyart.png.jpg/revision/latest/scale-to-width-down/1000?cb=20191126164543">
 
 [atabook](https://vera-is-not-a-loser.atabook.org/)⠀ᐟ⠀[pronouns](https://pronouns.cc/@better-to-sleep)⠀ᐟ⠀[strawpage](https://better-to-sleep.straw.page/)
 
