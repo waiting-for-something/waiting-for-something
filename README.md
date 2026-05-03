@@ -6,7 +6,7 @@
 
 <img width="99%" src="https://static.wikia.nocookie.net/life-is-strange/images/9/9e/LiS2-E5-Wolves_Keyart.png.jpg/revision/latest/scale-to-width-down/1000?cb=20191126164543">
 
-[atabook](https://vera-is-not-a-loser.atabook.org/)⠀۫ ׅᐟ⠀[pronouns](https://pronouns.cc/@better-to-sleep)⠀ᐟ۫ ׅ⠀[strawpage](https://better-to-sleep.straw.page/)
+[atabook](https://vera-is-not-a-loser.atabook.org/)ㅤ⠀੭﹕﹒⠀ㅤ[pronouns](https://pronouns.cc/@better-to-sleep)ㅤ⠀۫ ׅ⠀ㅤ[strawpage](https://better-to-sleep.straw.page/)
 
   
   <p align="center"> <sup>𓂃 i don't mind c+h even if we don't know each other. 
