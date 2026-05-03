@@ -4,7 +4,7 @@
 
  ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=2b1a12&style=flat&label=wolves)
 
-<img width="99%" src="[https://i.pinimg.com/originals/e3/ba/0e/e3ba0e7c9bd6f5a966495801f2817707.gif](https://static.wikia.nocookie.net/life-is-strange/images/9/9e/LiS2-E5-Wolves_Keyart.png.jpg/revision/latest/scale-to-width-down/1000?cb=20191126164543)">
+<img width="99%" src="[https://static.wikia.nocookie.net/life-is-strange/images/9/9e/LiS2-E5-Wolves_Keyart.png.jpg/revision/latest/scale-to-width-down/1000?cb=20191126164543)">
 
 [atabook](https://vera-is-not-a-loser.atabook.org/)⠀ᐟ⠀[pronouns](https://pronouns.cc/@better-to-sleep)⠀ᐟ⠀[strawpage](https://better-to-sleep.straw.page/)
 
