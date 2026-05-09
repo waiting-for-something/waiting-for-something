@@ -2,9 +2,9 @@
 <div align="center">
 
 
-𓏲ּ𝄢ㅤ ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=2b1a12&style=flat&label=wolves) ㅤ⸙݁ ․
+𓏲ּ𝄢ㅤ ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=green&style=flat&label=wolves) ㅤ⸙݁ ․
 
-<img width="99%" src="https://static.wikia.nocookie.net/life-is-strange/images/9/9e/LiS2-E5-Wolves_Keyart.png.jpg/revision/latest/scale-to-width-down/1000?cb=20191126164543">
+<img width="99%" src="https://64.media.tumblr.com/76754b75c140a3476da4077152c4972e/92bafdca4337b0db-a3/s1280x1920/493424c3915b3dc1051f4d14b164c9a4198bb54a.jpg">
 
 [atabook](https://vera-is-not-a-loser.atabook.org/)ㅤ⠀੭ 𓏼 ﹒⠀[pronouns](https://pronouns.cc/@better-to-sleep)ㅤ⠀಄ ﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)
 
